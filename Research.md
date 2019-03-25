@@ -1,11 +1,3 @@
-http://jpninfo.com/31964
-https://www.nippon.com/en/features/h00043/
-https://en.wikipedia.org/wiki/History_of_anime
-
-
-
-
-
 There is no debate over the influence that <strong>Japanese Anime</strong> has had on the world, not only film but in games and media in general. The history of anime to our current knowledge can be traced back to the start of the 20th century.
 Without going in too deep on how Walt Disney Productions and early Japanese Animators where inspired by each other, and how each medium evolved on their respective own it is in my opinion a certain fact that <strong>"Anime"</strong> has great influence over many genres and mediums.    
 
@@ -36,7 +28,7 @@ My #5 and of the best mystery & thriller titles I have seen to recent date. Char
 For more info refer to this link
 https://myanimelist.net/anime/19/Monster?q=monster
 
-4.Akihito Tsukushi's Made In Abyss
+4. Akihito Tsukushi's Made In Abyss
 
 2017's Anime of the year as voted by Crunchyroll(http://www.crunchyroll.com/). The most beautifully drawn manga I have come across and also one of the most emotionally attaching anime series I have seen.
 
@@ -44,9 +36,18 @@ https://myanimelist.net/anime/19/Monster?q=monster
 For more info refer to this link
 https://myanimelist.net/anime/34599/Made_in_Abyss
 
-3.Mushishi
 
-#3 by a small increment vs #4 due to me falling in love with Ginko as a character from the get-go.
+3. One Outs
+
+Ever wanted to watch a sports anime but you couln't find one psychological enough for you to validate even watching a sports anime, Look no further. One Outs is a Baseball anime with a gambling mad main character named Toua Tokuchi, a total bad-ass character all & all.
+Watch it has an exeptionally good story line with some superb twists, tricks & turns. If you haven watched it before and it dissapointed you, stop and get yourself checked.
+
+For more info refer to this link
+https://myanimelist.net/anime/5040/One_Outs
+
+2. Mushishi
+
+#3 by a small increment vs #3 due to me falling in love with Ginko as a character from the get-go.
 With a premise like Mushishi's and the fact that I am a "Seinen" genre lover how could I not watch it over & over as many times as I have, I don't think you get it more than 10 times already for both seasons It is one of my most recommended titles to new joiners to the "Anime" following.
 
 
@@ -54,10 +55,10 @@ For more info refer to this link
 https://myanimelist.net/anime/457/Mushishi
 
 
-To me I still can't fully decide which I like more #1 or #2 untill then here it is as they are now.
+To me I still can't fully decide which I like more, so untill then both are #1.
 
 
-2.Gen Urobuchi's Psycho-Pass
+1. Gen Urobuchi's Psycho-Pass
 
 Psychological, Seinen, Police with a Sci-Fi spin on it love at first sight. Both Seasons are great with me liking season 2 more than season 1, I know one of the select few. I enjoy the setting and the characters especially the main Akane Tsunemori more so than Shinya Kougami thus why I think the second season drives the storyline forward more.
 
@@ -72,7 +73,7 @@ Psycho-Pass SS Case 3: Onshuu no Kanata ni - https://myanimelist.net/anime/37442
 For more info refer to this link
 https://myanimelist.net/anime/13601/Psycho-Pass
 
-1.Shirow Masamune's Ghost In The Shell
+1. Shirow Masamune's Ghost In The Shell
 
 The original 1996 movie directed by The Man, The Master Mamoru Oshi has been one of my main reasons for being such a fan of anime and probably the main reason that I love the above listed genres, because as a kid it caught my ADHD attention with such greatness that the first time I found out that there existed a 26 episode series by the name of Ghost In The Shell: Stand Alone Complex 1st Gig. I had to watch it with, but me at my childhood level of understanding, having to watch it secral times
 (also causing me to read J.D. Salanger's Catcher in the Rye - https://www.goodreads.com/book/show/5107.The_Catcher_in_the_Rye) 
@@ -105,7 +106,7 @@ In this order the story somewhat completes the storyline.
 
 
 
-This is my own opinion I stand by it if you want to debate it then as the great youtubers say "Fuck You, Fight Me"
+This is my own opinion I stand by it if you want to debate it then as the great Anime Man and Mothers Basement says "Fuck You, Fight Me"
 
 
 
